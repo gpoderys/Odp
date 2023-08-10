@@ -1,2 +1,2 @@
 # Odp
-Get on with it motherfucker!
+Getting on with it.
